@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 -->
 Estudiante de Ingeniería en Sistemas de Información. Actualmente desarrollando **AEON** como proyecto personal y trabajando en otros proyectos de software.
 
-Me interesa aprender, experimentar y entender lo que hay detrás de cada cosa que construyo. En constante aprendizaje, con proyectos que me permiten llevar la teoría a la práctica.
+Me gustan los perros que jamás me olvidaron, y los caballos, y los abrazos que me dan mis hermanos.
 
 ---
 
